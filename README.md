@@ -1,5 +1,5 @@
-- Hi, I’m @aakashPatel123345
-- Undergraduate at University of Maryland
+- Hi, I’m Aakash Patel
+- Undergraduate at University of Maryland, College Park
 - 📫 How to reach me 
   -Email: aakash.patel0377@gmail.com
   -Phone: 848-234-0229
